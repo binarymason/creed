@@ -1,5 +1,3 @@
-# My Values
-
 ### Wisdom
 I am always looking for better ways of doing things.  I am a voracious reader and I meet regularly meet with people with more wisdom and experience than myself.
 
