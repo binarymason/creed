@@ -1,5 +1,5 @@
 ### Wisdom
-I am always looking for better ways of doing things.  I am a voracious reader and I meet regularly meet with people with more wisdom and experience than myself.
+I am always looking for better ways of doing things.  I am a voracious reader and I meet regularly with people with more wisdom and experience than myself.
 
 ### Discipline
 I am disciplined and physically fit.  I am orderly in person and in work, and I plan tomorrow's work today. I am not the type of person that presses the snooze button.
